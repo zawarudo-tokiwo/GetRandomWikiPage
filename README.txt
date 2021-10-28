@@ -1,0 +1,1 @@
+kinda instruction to this programm
